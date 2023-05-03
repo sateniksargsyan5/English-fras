@@ -13,3 +13,5 @@ Every Christmas in the Philippines they hold the Giant Lantern Festival.The fest
 
 Спи как минимум семь часов каждый день. Это поможет твоей иммунной системе сражаться с инфекцией. Хорошо питайся. Тебе нужно быть сильным! Ешь больше грибов. Согласно последним исследованиям, грибы повышают иммунитет. Соблюдай чистоту в своём доме. Не забывай открывать окна и проветривать свою комнату. Не трогай своё лицо. Ты можешь распространить инфекцию, трогая свой рот грязными руками. Не забывай веселиться! Смех и позитивные эмоции полезны для твоей иммунной системы.
 
+Sleep at least seven hours every day. It will help your immune system to fight the infection. Eat well. You need to stay strong!  Eat more mushrooms. Keep your house clean. Don't forget to open the windows and ventilate your room. Don't touch your face. You may spread the infection touching your mouth with dirty hands. Don't forget to have fun! Laughter and positive emotions are good for your immune system.
+
