@@ -6,6 +6,8 @@
 Every Christmas in the Philippines they hold the Giant Lantern Festival.The festival attracts spectators from all over the world.In one Swedish city, a 13-meter-tall goat statue is built for Christmas.Bavarian Saint Nicholas travels by donkey.He leaves presents in children's shoes.Traditional Japanese Christmas dinner is grilled chicken from KFC. Norwegians hide their brooms from evil spirits before Christmas. In Venezuela on Christmas Eve people go to church on roller skates. Little Candles' Day is a Colombian tradition. On December 7, Colombians place candles and lanterns on their windows and balconies. And about what interesting Christmas traditions do you know?
 
 
+I like films about superheroes. And I hope that one day everybody will be able to get a superpower. I think that it would be great to move objects using the power of my mind. So I'd need another power - to eat and not get fat. It would be interesting to change my appearance or turn invisible. I would also like to heal people and animals. However, if I could select only one ability, I would control time. There is nothing more important than time. And what superpower would you like to have?
+
 
 ![image](https://user-images.githubusercontent.com/132228630/236022749-f75404e3-2442-41e8-934b-ecf5a9ea4adc.png)
 
