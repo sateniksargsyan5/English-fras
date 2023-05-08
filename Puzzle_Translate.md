@@ -31,3 +31,5 @@ Sleep at least seven hours every day. It will help your immune system to fight t
 
 Мне нравятся фильмы о супергероях. И я надеюсь, что однажды каждый будет иметь возможность получить суперсилу. Я думаю, что было бы отлично передвигать объекты, используя силу своего разума. Но в этом случае я бы меньше двигался и, вероятно, набрал вес. Так что мне бы нужна была еще одна сила - есть и не толстеть. Было бы интересно менять свою внешность или становиться невидимым. Я бы также хотел исцелять людей и животных. Однако, если бы я мог выбрать только одну способность, я бы контролировал время. Нет ничего важнее, чем время. А какую суперсилу вы бы хотели иметь?
 
+I like films about superheroes. And I hope that one day everybody will be able to get a superpower. I think that it would be great to move objects using the power of my mind. So I'd need another power - to eat and not get fat. It would be interesting to change my appearance or turn invisible. I would also like to heal people and animals. However, if I could select only one ability, I would control time. There is nothing more important than time. And what superpower would you like to have?
+
